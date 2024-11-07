@@ -8,6 +8,8 @@
 
 - 👨‍💻 All of my projects are available at [goyaldeepak87.github.io/MyPortfolio](goyaldeepak87.github.io/MyPortfolio)
 
+- 📫 How to reach me **goyaldeepak871@gmail.com**
+
 - 📄 Know about my experiences [https://drive.google.com/file/d/13ub9m-KNBm9tCBXxV3v-Z4baCGmvQubD/view](https://drive.google.com/file/d/13ub9m-KNBm9tCBXxV3v-Z4baCGmvQubD/view)
 
 <h3 align="left">Connect with me:</h3>
